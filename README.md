@@ -1,0 +1,1 @@
+Yangi funksiya qo'shildi
